@@ -1,8 +1,5 @@
-# **The Last Innocents**
+# **The First Light**
 
-## *—When Light Fades, Shadows Rise*
-
-**Prologue**
 
 Aren Vale was a simple boy from a small village, where the days stretched long and peaceful under wide, open skies. He lived with his parents and his older sister, Mira, who—eleven years his senior—had mothered him more than played with him, her care a steady, quiet constant in his life.
 
