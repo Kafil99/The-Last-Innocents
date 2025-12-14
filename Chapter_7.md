@@ -1,4 +1,4 @@
-# **The Day I Cried The Most**
+# **When Tomorrow Never Came**
 
 Prince Kaelros did not request. He did not negotiate. To him, the world was a menu, and he took what he wanted. The throne had taught him that. All it had cost was the lives of the two people who gave him life. The word “no” was not a refusal to him; it was a temporary obstacle, and obstacles were removed.
 
@@ -78,4 +78,5 @@ Lyra did not fight. She did not speak. She stood in the ruins of her life, the c
 
 
 And then, finally, silently, she began to cry.
+
 
